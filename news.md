@@ -14,6 +14,6 @@ Dal 2025 puoi comprare quote della mia musica e ricevere royalty dai proventi di
 # Nuovo Album Musica Marziale Disponibile
 Date: 2024-12-15
 
-È finalmente disponibile il mio nuovo album "Musica Marziale", co-prodotto con Livio Magnini (Bluvertigo, Bloody Beetroots, JetLag). Su tutte le piattaforme.
+Finalmente disponibile il mio nuovo album "Musica Marziale", co-prodotto con Livio Magnini (Bluvertigo, Bloody Beetroots, JetLag). Su tutte le piattaforme.
 
 ---
