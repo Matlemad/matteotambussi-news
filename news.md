@@ -1,23 +1,19 @@
 ---
-# Nuovo Album Musica Marziale Disponibile
-Date: 2024-12-15
+# Live in Cannes a inizio Luglio
+Date: 2025-06-04
 
-È finalmente disponibile il mio nuovo album "Musica Marziale", co-prodotto con Livio Magnini (Bluvertigo, Bloody Beetroots, JetLag). Un viaggio sonoro che esplora temi contemporanei attraverso soundscape innovativi.
+Dal 30 giugno al 4 luglio sarò a Cannes per la conferenza EthCC8. Come tradizione da anni, insieme alla Open Source Orchestra imbastiremo momenti di improvvisazione musicale tra l'analogico, il digitale e il... crypto!
 
 ---
 # Collaborazione con Songs Tools
-Date: 2024-11-20
+Date: 2025-01-29
 
-Ho lanciato le royalty shares dei miei brani su Songs Tools, il primo marketplace per l'acquisto di quote di diritti musicali. Ora puoi investire nella mia musica e ricevere royalty dai proventi di streaming.
-
----
-# Tour Europeo 2025 in Preparazione
-Date: 2024-10-30
-
-Sto preparando le date per il tour europeo 2025. Nuove venue, nuovi suoni, nuove collaborazioni. Stay tuned per gli annunci ufficiali delle date e delle città!
+Dal 2025 puoi comprare quote della mia musica e ricevere royalty dai proventi di streaming. Cerca la sezione Royalty in basso.
 
 ---
-# Residenza Artistica a Berlino
-Date: 2024-09-15
+# Nuovo Album Musica Marziale Disponibile
+Date: 2024-12-15
 
-Sono tornato nella mia Berlino per una residenza artistica che mi porterà a esplorare nuove sonorità elettroniche. Il progetto vedrà la luce nei prossimi mesi.
+È finalmente disponibile il mio nuovo album "Musica Marziale", co-prodotto con Livio Magnini (Bluvertigo, Bloody Beetroots, JetLag). Su tutte le piattaforme.
+
+---
